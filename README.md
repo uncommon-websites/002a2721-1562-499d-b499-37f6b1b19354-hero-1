@@ -1,0 +1,2 @@
+# 002a2721-1562-499d-b499-37f6b1b19354-hero-1
+Hero section variant 1 for 002a2721-1562-499d-b499-37f6b1b19354
